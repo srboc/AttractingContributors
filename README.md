@@ -2,6 +2,8 @@ Example.
 I want to date Tsubasa Honda!
 
 # List of Name
--Kanna Hashimoto  
+- Kanna Hashimoto  
 - Yuri Tsuchihashi  
--Yuri Tsuchihashi
+- Nanako Michiura
+- Yuri Tsuchihashi
+
