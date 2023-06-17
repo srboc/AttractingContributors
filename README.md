@@ -27,7 +27,7 @@ Add one of the your best game to the list below.
 4. Valorant
 5. Suikoden
 6. Blue Archive
-7.
+7. DEATH STRANDING
 8.
 9.
 10.
