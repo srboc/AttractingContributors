@@ -24,10 +24,10 @@ Add one of the your best game to the list below.
 1. Minecraft
 2. FIFA
 3. Overwatch
-4. Genshin
-5.
-6.
-7.
-8.
+4. Valorant
+5. Suikoden
+6. Blue Archive
+7. DEATH STRANDING
+8. Genshin
 9.
 10.
