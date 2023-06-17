@@ -28,6 +28,6 @@ Add one of the your best game to the list below.
 5. Suikoden
 6. Blue Archive
 7. DEATH STRANDING
-8.
+8. Genshin
 9.
 10.
