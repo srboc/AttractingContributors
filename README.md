@@ -13,4 +13,4 @@ Please tell me about your hometown!
 7. Tokyo  
 8. UK  
 9. Nara  
-10.  
+10. Hyogo, Himeji
