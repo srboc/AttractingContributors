@@ -12,5 +12,5 @@ Please tell me about your hometown!
 6. Okinawa  
 7. Tokyo  
 8. UK  
-9.  
+9. Nara
 10.  
