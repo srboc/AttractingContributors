@@ -6,4 +6,4 @@ I want to date Tsubasa Honda!
 - Yuri Tsuchihashi  
 - Nanako Michiura
 - Yuri Tsuchihashi
-
+- Saito Asuka
