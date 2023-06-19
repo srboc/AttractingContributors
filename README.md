@@ -20,7 +20,7 @@ Please recommend your favorite beer.🍺 </br>
 あなたの好きなビールを紹介してください🍺
 
 # List of Hobby
-1.
+1. Asahi Super Dry
 2.
 3.
 4.
