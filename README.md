@@ -21,7 +21,7 @@ Please recommend your favorite beer.🍺 </br>
 
 # List of Hobby
 1. Asahi Super Dry
-2.
+2. Premium Malts
 3.
 4.
 5.
