@@ -9,7 +9,7 @@ What's you favorite game and what game would you recommend ?
 3. Sekiro
 4. Supermario
 5. Super Mario series
-6.
+6. Puyo Puyo
 7.
 8. Civilization
 9.
