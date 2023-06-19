@@ -4,17 +4,31 @@ example)平城京　Heijokyo
 
 みんなの意見(your opinion)↓
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
+
 ・
