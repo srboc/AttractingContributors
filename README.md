@@ -9,8 +9,9 @@ Please tell me about your hometown!
 3.　Shimane, Matsue-city  
 4.　Osaka, Suita  
 5.　Kyoto  
-6. Okinawa  
-7. Tokyo  
-8. UK  
-9. Nara  
-10. Hyogo, Himeji
+6.  Okinawa  
+7.  Tokyo  
+8.  UK  
+9.  Nara  
+10.  Hyogo, Himeji  
+11.  Hokkaido,shiretoko
