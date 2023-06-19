@@ -12,5 +12,5 @@ What's you favorite game and what game would you recommend ?
 6. Puyo Puyo
 7. Mortal Kombat
 8. Civilization
-9.
+9. MahjongSoul
 10. Portal
