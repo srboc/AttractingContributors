@@ -10,7 +10,7 @@ What's you favorite game and what game would you recommend ?
 4. Supermario
 5. Super Mario series
 6. Puyo Puyo
-7.
+7. Mortal Kombat
 8. Civilization
 9.
 10. Portal
