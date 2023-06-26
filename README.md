@@ -37,3 +37,4 @@ https://github.com/NAIST-SE/AttractingContributors/discussions/4 (Discussion)
 14. Kyoto Fukujuen Iyemon Green Tea
 15. Orange juice
 16. Beer
+17. Protein drink
