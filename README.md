@@ -39,3 +39,4 @@ https://github.com/NAIST-SE/AttractingContributors/discussions/4 (Discussion)
 15. Orange juice
 16. Beer
 17. Protein drink
+18. Coffee
